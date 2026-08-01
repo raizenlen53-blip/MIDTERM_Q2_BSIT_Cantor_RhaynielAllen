@@ -1,1 +1,1 @@
-# MIDTERM_Q2_BSIT_Cantor_RhaynielAllen
+# it-elective-2-prelim-assignment-1
